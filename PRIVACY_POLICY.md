@@ -1,4 +1,4 @@
-# Privacy Policy — Tab Memory Manager
+# Privacy Policy — Tab Memory Manager 
 
 _Last updated: 2026-06-13_
 
